@@ -1,4 +1,4 @@
-#  
+#  Instantâneo bee swarm simulator script é o melhor bee swarm simulator script com indetectável e coleta automática. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
